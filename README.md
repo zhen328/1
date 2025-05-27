@@ -3,11 +3,6 @@
 
 ![皮卡丘](https://github.com/user-attachments/assets/d1a6bcc5-3ef5-46b8-b7ab-46c958954177)
 
-大家好，**1小皮卡丘**以下是我的自我介绍：
-
----![1ed3c88b2917a4c91840c01f5f565c9](https://github.com/user-attachments/assets/166c975d-70ab-4401-9f78-6a0c1adf689c)
-
-
 ## 基础档案 
 可爱的小不点电气鼠
 ### 外貌特征 
